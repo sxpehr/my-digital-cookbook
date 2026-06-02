@@ -1,2 +1,2 @@
 # My Digital Cookbook
-## Welcome to my cooking journey!**Created by:** [Your Name]
+## Welcome to my cooking journey! **Created by:** Sepehr Nili Ardekani
